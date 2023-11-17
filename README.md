@@ -1,7 +1,7 @@
 ### **Meu Perfil** 
 Kauan Ceregatti
 
-**kauan_ceregatti**
+**@kauan_ceregatti**
 
 Pretendo me formar em quimica futuramente 
 
